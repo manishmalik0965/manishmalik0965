@@ -59,5 +59,6 @@ Open to IT Administrator / IT Support / System Administrator roles in Europe —
 
 - Email: Manish.malik2905@gmail.com
 - LinkedIn: https://www.linkedin.com/in/manishmalik0
+- Portfolio: https://muse.ai/s/portfolio-website-xie6xwxg8axjjxhxe/IsFvF7m_oEc4PvlVjtB7OZASryhky3vXaNolEAZ9T_Q
 
 Education: NIOS Senior Secondary · Languages: English, German A2 (uncertified)
